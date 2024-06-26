@@ -11,3 +11,6 @@ Meu nome é Felipe Araujo
 fe342875@gmail.com
 
 @Felipe_Araujo
+
+
+![](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExc3hocXJnNHU3aW9jZDF6aDZ5OHgyZ2lwMmFhN3NmeXFmNXM1eno4aSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/dJHaTbNQOjYMWdHSTG/giphy.webp)
